@@ -1,6 +1,6 @@
 ### 🙈 Demo
 
-- **🖤 Demo**: _https://oshekharo.github.io/Begonia/_
+- **🌐**: _https://oshekharo.github.io/Begonia/_
 
 ## 🤗 Meet Me :
 
