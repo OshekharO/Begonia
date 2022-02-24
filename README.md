@@ -4,7 +4,7 @@
 
 ## 🤗 Meet Me :
 
-• For any Support contact [@OshekherO](https://t.me/OshekherO) on Telegram <br>
+• For any Support contact [@OshekherO](https://t.me/OshekherO) <br>
 
 ---
 <h4 align='center'>© 2022 ツ ѕнєкнєя</h4>
